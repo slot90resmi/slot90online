@@ -3,6 +3,7 @@
 ## Selamat Datang di Slot90 Online
 
 Slot90 Online hadir sebagai platform hiburan digital modern dengan tampilan mobile friendly, akses cepat, dan sistem online terbaru yang semakin populer di Indonesia. Dengan dukungan teknologi terbaru 2026, pengguna dapat menikmati pengalaman akses yang ringan, stabil, dan responsif melalui berbagai perangkat Android maupun iOS.
+##[DAFTAR SEKARANG](https://cutlink.cyou/s/g/baby/)
 
 Platform ini menjadi salah satu pilihan favorit pengguna yang mencari informasi hiburan online modern dengan navigasi sederhana serta update terbaru setiap hari.
 
